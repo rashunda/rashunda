@@ -3,7 +3,8 @@
 
 👵🏾 I'm a late starter
 
-🫱🏾‍🫲🏽 I’m looking to collaborate on nothing
+🫱🏾‍🫲🏽 Not ready to collaborate yet
 
 😄 Pronouns: she / her
 
+🔍 [Find me on Mastodon](https://mastodon.social/@rashunda)
