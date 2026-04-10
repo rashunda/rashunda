@@ -1,7 +1,7 @@
 ## Hi there 👋🏾
-🌱 I’m currently learning GitHub
+🌱 Currently learning GitHub
 
-👵🏾 I'm a late starter
+👵🏾 Late starter
 
 😄 Pronouns: she / her
 
